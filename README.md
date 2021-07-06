@@ -4,7 +4,7 @@
 
 🌸︱~ **YouTuber & Gamer**
 
-🌸 ︱~ **Otaku**
+🌸︱~ **Otaku**
 
 🌸︱~ **Coder**
 
