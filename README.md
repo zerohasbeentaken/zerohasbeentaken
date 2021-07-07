@@ -25,3 +25,7 @@
 🌸︱~ [YouTube](https://www.youtube.com/channel/UCMCe9qbbfrRV30Om-7nlrSQ)
 
 🌸╰ ~ [Twitch](https://www.twitch.tv/izuku220)
+
+# coding languages
+Code With: JavaScript, Discord.js, Aoi.js, BDFD & learning Python, HTML, java
+
