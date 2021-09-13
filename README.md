@@ -1,8 +1,6 @@
 # About Me
 
-🌸╭ ~ **Discord Server Owner**
-
-🌸︱~ **YouTuber & Gamer**
+🌸╭ ~ **YouTuber & Gamer**
 
 🌸︱~ **Otaku**
 
